@@ -103,4 +103,4 @@ https://joaofernandes.codepulseit.com/
 💼 **LinkedIn:**  
 https://www.linkedin.com/in/joaofernandesuk/
 
-📍 **United Kingdom · Remote**
+📍 **United Kingdom . Portugal . Remote**
